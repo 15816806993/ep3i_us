@@ -54,12 +54,21 @@ Your behavior on this server will not affect anything
 ### Acknowledgement (in no particular order, please contact me if you have any omissions)
 
 -jared2021-EP3I Server contributor
+
 -huangyu_idid-EP3I.TOP domain owner
+
 -TheCuberHat-30² the spirit is forever
+
 -CuteStarX-EP3I Server initial construction
+
 -0x0027-EP3I Server initial construction
+
 -g2nnyS-Initial construction of EP3I Server
+
 -LH_Sowang-Initial construction of EP3I Server
+
 -Lei_Fang_-3I creator, initial construction of EP3I Server
+
 -Lanyangyang_CN-EP Creator
+
 -Sslk_yanmo-Spiritual Shareholder
